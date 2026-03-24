@@ -82,5 +82,6 @@ Y hacerlo rodeado de gente de la que pueda aprender y a la que pueda aportar.
 
 
 
-💡 Si has llegado hasta aquí, gracias.  
-Si esta historia encaja con la tuya, hablemos.
+💡 Si has llegado hasta aquí, has visto más que un perfil: has presenciado el inicio de una historia.
+Si algo de este viaje ha resonado contigo, entonces quizá no sea casualidad.
+Las mejores alianzas empiezan así… en silencio, antes de que todo ocurra. Escribe sin reparos.
