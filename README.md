@@ -82,6 +82,7 @@ Y hacerlo rodeado de gente de la que pueda aprender y a la que pueda aportar.
 
 
 
-💡 Si has llegado hasta aquí, has visto más que un perfil: has presenciado el inicio de una historia.
-Si algo de este viaje ha resonado contigo, entonces quizá no sea casualidad.
-Las mejores alianzas empiezan así… en silencio, antes de que todo ocurra. Escribe sin reparos.
+💡 Si has llegado hasta aquí, has sido testigo del comienzo, no del final.
+Si algo de este camino ha resonado en ti, tómalo como una señal, no como un accidente.
+Las colaboraciones que perduran no nacen del ruido, sino de un reconocimiento silencioso entre dos historias que se cruzan.
+Si este es ese cruce, avancemos. Hablemos.
