@@ -12,7 +12,7 @@
 
   [![LinkedIn](https://img.shields.io/badge/LinkedIn-Luis%20Zambrana-blue?style=for-the-badge&logo=linkedin)](https://www.linkedin.com/in/luis-zambrana-rodrigo)
   
-
+  [![Email](https://img.shields.io/badge/Email-luiszr2002%40gmail.com-red?style=for-the-badge&logo=gmail)](mailto:luiszr2002@gmail.com)
 ---
 
 ## 🧠 Sobre mí
