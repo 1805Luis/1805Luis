@@ -69,7 +69,7 @@ Sigo aprendiendo, rompiendo cosas para entenderlas, afinando lo que construyo y 
 
 - Profundizando en **cloud**, despliegues y automatización  
 - Aprendiendo **Kubernetes** y buenas prácticas de orquestación  
-- Buscando mi **primera oportunidad profesional** en backend  
+- Buscando mi **primera oportunidad profesional** 
 
 ---
 
